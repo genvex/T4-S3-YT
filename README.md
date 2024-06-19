@@ -1,4 +1,4 @@
-# T-Display-S3-Pro
+# T4-S3
 ---
 Do you like my videos? Please consider buying me a ☕ :
 https://www.buymeacoffee.com/nishad2m8
